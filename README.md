@@ -1,1 +1,2 @@
-[Goruntu_isleme_sara_faizi (1).pdf](https://github.com/user-attachments/files/21418719/Goruntu_isleme_sara_faizi.1.pdf)
+
+[İnformation.pdf](https://github.com/user-attachments/files/21418756/Information.pdf)
